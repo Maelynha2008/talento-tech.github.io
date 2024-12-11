@@ -1,1 +1,0 @@
-# talento-tech.github.io
